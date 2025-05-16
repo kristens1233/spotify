@@ -6,3 +6,4 @@ Ar ar카 ir da탑as 카sas instrukcijas, lai lapas saturs pareizi piel훮gotos da탑�
 
 
 
+![image](https://github.com/user-attachments/assets/83bd4ca9-3d22-4ad4-8168-ddcd73cb2257)
